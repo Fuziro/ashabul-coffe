@@ -3,4 +3,4 @@
 coded By Avindeso
 
 
-# Upgrade Skill DULU
+# Upgrade skin ya mbohh
